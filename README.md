@@ -5,3 +5,4 @@
 
 # OWNER [👑𝕾𝖜𝖆𝖒𝖎👑 ](https://t.me/mewtwoniteX)
 # Bot-link [HeXa](https://t.me/HeXamonbot)
+# Note If any thing happens i am not responsible for that so fork it at your own risk 'YOU ARE FORWARDED'
